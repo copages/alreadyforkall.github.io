@@ -1,1 +1,1 @@
-# xn--h6qv61aw06b.github.io
+# xn-h6qv61aw06b.github.io
